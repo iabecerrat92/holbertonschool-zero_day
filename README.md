@@ -1,0 +1,1 @@
+**this document Contain a Information about Zero day if u want more information  found here** _Strong_
